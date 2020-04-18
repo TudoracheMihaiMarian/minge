@@ -1,0 +1,2 @@
+# minge
+joc
